@@ -1,0 +1,1 @@
+# Sise-Tespit-Etme
